@@ -18,4 +18,4 @@ dni if you goon to dark magician girl btw
 [patreon](https://www.patreon.com/rice147/about)
 [i like these](https://rentry.co/scpstandsforsexualitychangepronouns)
 
-![](https://github.com/ghpvc/?presumablyclef&color=green)
+find me in docks or something konny beats me daily and i hate her
