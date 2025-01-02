@@ -17,3 +17,5 @@ dni if you goon to dark magician girl btw
 
 [patreon](https://www.patreon.com/rice147/about)
 [i like these](https://rentry.co/scpstandsforsexualitychangepronouns)
+
+![](https://komarev.com/ghpvc/?username=your-github-username&color=yellowgreen)
